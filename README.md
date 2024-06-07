@@ -1,1 +1,1 @@
-# plantshop.
+In recent years,online plant businesses have sprung uo from garages and garden sheds to answer a demand that doesn't shows signs of slowing. Your green thumb could be worth more than you think.If you'he ever thought of selling plants online,now is the time.
